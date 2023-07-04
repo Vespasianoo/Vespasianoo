@@ -14,7 +14,6 @@
 </div><br/>
 
 </br>
-<p>❤ Sou um apaixonado por tecnologia pois sempre fui fã de não morrer de fome.</p>
 
 ## Contato
 
